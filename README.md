@@ -1,1 +1,3 @@
-# magnesium-freeze-evening-routine
+# Magnesium Freeze — Feeling Muscle Pain as You Age? A Simple Evening Routine
+
+Feeling muscle pain as you get older? Your muscles need care. Here is a simple evening routine with Magnesium Freeze Cream by Peak Health Research. Clean the area, apply a small amount of Magnesium Freeze Cream, massage it in gently, then feel it — cool first, then gentle warmth. Magnesium Freeze Cream has 12 studied ingredients powered by magnesium and niacinamide. It is fast-absorbing, lightweight and non-greasy. Use it on knees, calves and lower back. Learn more: [Magnesium Freeze Cream](http://magnesium-freeze.com/)
